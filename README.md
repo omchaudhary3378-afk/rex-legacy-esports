@@ -1,0 +1,2 @@
+# rex-legacy-esports
+ THIS IS THE LEGACY.  REX LEGACY ESPORTS — BUILD THE LEGACY
